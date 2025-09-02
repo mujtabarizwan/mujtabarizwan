@@ -18,7 +18,7 @@ Here are some of the projects I've worked on:
 5. [Royal Tech Luxe](https://royaltechluxe.com/)
 6. [Z1 Digital](https://www.z1.digital/)
 7. [Tech4Med](https://www.tech4med.pt/)
-8. [EXD Pro](https://www.exdpro.com/)
+8. [MRSH Couture](https://mrshcouture.com/)
 9. [Tesla T9](https://waqaskhuram97.wixstudio.io/t9tesla)
 
 ## 📫 Get in Touch
